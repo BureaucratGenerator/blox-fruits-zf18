@@ -1,4 +1,4 @@
-
+Top escape tsunami for brainrots script est le meilleur escape tsunami for brainrots script avec téléportation et anti-bannissement. Sécurisé, fiable et optimisé pour des
 
 
 
